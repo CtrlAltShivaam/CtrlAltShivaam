@@ -11,9 +11,9 @@
 
 - 📫 How to reach me **reach.shivamsharma@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16gKbOyp1-dXrvhePFjp3uFbpbI2Zz-AA/view?usp=drive_link](https://drive.google.com/file/d/16gKbOyp1-dXrvhePFjp3uFbpbI2Zz-AA/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/16gKbOyp1-dXrvhePFjp3uFbpbI2Zz-AA/view?usp=drive_link)
 
-- ⚡ Fun fact **People really don't care enough.**
+- ⚡ Fun fact: **People really don't care enough.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
