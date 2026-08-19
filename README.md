@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **reach.shivamsharma@gmail.com**
 
-- 📄 Know about my experience [Resume](https://drive.google.com/file/d/16gKbOyp1-dXrvhePFjp3uFbpbI2Zz-AA/view?usp=drive_link)
+- 📄 Know about my experience [Resume](https://drive.google.com/file/d/1i_T9Qbm_sBvc4MmmCgwfp1EcvMiTYb3R/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
